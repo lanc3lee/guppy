@@ -1,7 +1,7 @@
 ---
 title: Guppy Singapore
 ---
-[Join our Singapore Fish Community on Telegram](https://t.me/singaporefish) and [our facebook group]([https://t.me/singaporefish](https://www.facebook.com/groups/2422433788198100) 
+[Join our Singapore Fish Community on Telegram](https://t.me/singaporefish) and [our facebook group](https://www.facebook.com/groups/2422433788198100) 
 - We giveaway free samples of BBS eggs (great food for small fishes) and hold lucky draws for guppies, bettas and aquarium accessories. 
   
 
