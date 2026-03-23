@@ -3,10 +3,16 @@ aliases:
 title: Sunnie
 permalink: Sunnie
 ---
-Sunnie is a breeder in Simei, Singapore. 
+Sunnie is a hobbyist & breeder in Simei, Singapore. 
 
 
-Strains of guppies bred by Sunnie include ...
+Strains of guppies bred by Sunnie include Purple Dragon
+Blue Grass
+PRTDE Halfmoon 
+AB Koi
+SB Koi
+Platinum Red Ear AFR 
+
 
 ![[sunnie_simei_meetup.jpg]]
 
