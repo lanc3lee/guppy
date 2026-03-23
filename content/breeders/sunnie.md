@@ -10,4 +10,4 @@ Strains of guppies bred by Sunnie include ...
 
 ![[sunnie_simei_meetup.jpg]]
 
-We stay very near one another and often meet up with fellow hobbyists who come over to buy guppies from Sunnie
+We stay very near one another and often meet up with fellow hobbyists who come over to meet and to learn from Sunnie
