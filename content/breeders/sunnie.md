@@ -1,3 +1,8 @@
+---
+aliases:
+title: Sunnie
+permalink: Sunnie
+---
 Sunnie is an expert breeder in Simei, Singapore. 
 
 We stay very near one another and often meet up with fellow hobbyists who come over to buy guppies from Sunnie
