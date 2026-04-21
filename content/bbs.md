@@ -1,14 +1,38 @@
-BBS (Baby Brine Shrimp) specifically _Artemia nauplii_, are often called the "gold standard" of fry food for a reason. For guppy breeders, they are the secret weapon for turning tiny, fragile fry into robust, colorful adults.
+BBS (Baby Brine Shrimp) specifically _Artemia nauplii_, is a great live food for guppy fries. 
+
+BBS eggs sold by LFS (Local Fish Shops) tend to be over-priced. Some don't store them properly (in cooler setups) which shortens their shelf life. 
 
 If you are a fellow guppy hobbyist in Singapore, welcome to get some free BBS eggs samples from me to try out. 
+
 Just happy to share and to recommend good local BBS egg sellers. 
+
 I don't earn commission in doing so, and I just want to ensure you don't buy from the bad sellers. 
 
 [Pls join our telegram group and ask for free BBS eggs samples there:](https://t.me/singaporefish)
 
-Here is why BBS are so good for guppies:
+We often have hobbyists buying in bulk and selling them cheaply, repackaged into 100grams smaller packs. 
+Each 100gram pack is enough for most hobbyists feed dozens of guppies daily for 2-3 months. 
 
----
+If you prefer to buy in bulk, try getting [Hong Jie （红姐）BBS from Tabao](https://e.tb.cn/h.iJbbVsRJ9JHVjS3). 
+
+Unfortunately, they can't ship direct to Singapore for customs reasons. If you are visiting China or have friends who can help bring back, it's just 92RMB (18+ SGD) for a 500grams pack. 
+
+There's 3rd party shippers who can send your BBS eggs purchased online, from China to Singapore. Costs 10sgd or less per pack of 500gram. 
+
+If you find it too much hassle to arrange for shipping, you can buy from a few parallel import resellers in Singapore. 
+
+They price them at 40 - 60sgd per 500gram pack, up to 2X to 3X mark up of price. 
+
+Some hobbyists in our group buy them, and repackage them for sale at 12sgd per 100grams. 
+
+In Singapore, Shopee and other online vendors sell BBS eggs at 16sgd per 100gram pack. Aquarium shops (LFS) sell at double or triple that price. 
+
+Speak to us in https://t.me/singaporefish if you want some help getting BBS eggs. 
+
+
+------
+
+Here is why BBS are so good for guppies:
 
 ### **1. High Nutritional Density**
 
