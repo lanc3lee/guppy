@@ -147,3 +147,45 @@ Once your DIY rig is ready, follow these quick parameters for a successful hatch
 - **Temperature:** Aim for **26°C – 30°C**. If your room is cool, placing a small desk lamp near the bottle provides both the necessary light and a bit of warmth to speed up the hatch.
 
 - **Harvesting:** After 18–24 hours, turn off the air. Let it sit for 5–10 minutes. The empty shells will float to the top, and the bright orange baby shrimp will settle at the bottom. Since your tube is at the very bottom, you can simply drain the concentrated shrimp into a sieve.
+
+
+------
+
+## FAQ - Frequently Asked Questions
+
+## Are we allowed to courier fly in BBS eggs into singapore?
+
+The short answer is **yes**, you can generally courier or fly in **Brine Shrimp (BBS) eggs** (cysts) into Singapore, but there are specific rules depending on whether you are doing this for personal use or for a commercial project.
+
+Since BBS eggs are technically "fish feed" for ornamental fish rather than food for human consumption, they fall under the jurisdiction of the **Animal and Veterinary Service (AVS)**, which is part of NParks.
+
+### 1. For Personal Use (Small Quantities)
+
+If you are flying back with a small amount in your luggage or ordering a small batch via courier for your own tanks:
+
+- **Permit:** Generally, small quantities for personal use do not require a formal import license.
+
+- **Quantity:** There isn't a strictly "hard" limit like the 30-egg rule for chicken eggs, but it must be a "reasonable" amount for personal hobbyist use.
+
+- **Prohibited Items:** Ensure the BBS eggs are just the cysts (dried) and do not include any "live" wet starters or prohibited hitchhikers (like snails or aquatic plants), as those are much more strictly regulated.
+
+
+### 2. For Commercial or "Project" Use
+
+If you are bringing them in for a business or a large-scale project (like a community farm or consultancy work):
+
+- **Licensing:** You would technically need a **Licence to Import or Export Ornamental Fish** (which covers related products like feed) if the volume is large.
+
+- **Customs Declaration:** Any shipment coming via courier with a value exceeding **S$400** will be subject to the prevailing **9% GST**.
+
+- **TradeNet:** Commercial imports require a permit declaration through the TradeNet system using the appropriate HS Code (typically under 0511 for animal products or 2309 for animal feeds).
+
+### Key Tips for a Smooth Arrival:
+
+- **Keep Original Packaging:** If the eggs are in their original, sealed commercial tins or foil bags, they are much less likely to be flagged by ICA/AVS. Clear labels showing they are _Artemia_ cysts help avoid confusion with restricted items.
+
+- **Courier Restrictions:** Check with the courier  specifically. Some consider "eggs" a restricted item by default and may ask for a "Non-CITES" declaration or a simple statement that they are for ornamental fish feed.
+
+
+
+**Summary:** If it’s a few tins for your personal breeding setups, you should be fine to courier them in or pack them in your check-in bag. If you're bringing in bulk for a larger project, you'll want to ensure the GST and import declarations are handled by the courier.
